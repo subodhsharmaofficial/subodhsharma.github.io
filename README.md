@@ -9,7 +9,7 @@
 
 👨‍💻 All of my projects are available at https://github.com/subodhsharmaofficial/
 
-⚡ Fun fact Love to sleep
+⚡ Love to sleep and travel.
 
 <h2>Skills:</h2>
 
